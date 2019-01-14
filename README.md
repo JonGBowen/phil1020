@@ -43,3 +43,8 @@ https://docs.google.com/presentation/d/1cM9a2RhSOu8VjxcziaEAA-s5dfsqQKRpL1VVxSY5
 
 Tutorial 13
 https://docs.google.com/presentation/d/13NAEFy5gZJcL1wzook_AEqufVsHFbOQuax3bGlXZ5mE/edit#slide=id.gc6f73a04f_0_0
+
+=== TERM 2 BEGINS HERE ===
+
+Tutorial 15: The Problem of Evil
+https://docs.google.com/presentation/d/1k-qd5-b8fGCwTshu5EL-cbDSG32FeWKzWLd28NIvT4Q/edit?usp=sharing
