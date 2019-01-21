@@ -48,3 +48,6 @@ https://docs.google.com/presentation/d/13NAEFy5gZJcL1wzook_AEqufVsHFbOQuax3bGlXZ
 
 Tutorial 15: The Problem of Evil
 https://docs.google.com/presentation/d/1k-qd5-b8fGCwTshu5EL-cbDSG32FeWKzWLd28NIvT4Q/edit?usp=sharing
+
+Tutorial 16: Bentham vs Kant
+https://docs.google.com/presentation/d/1M10CihiT9WCTKhbmZcVvUDult-arL8JvcVg9mdNOsx0/edit?usp=sharing
