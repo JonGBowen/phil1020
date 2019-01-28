@@ -51,3 +51,6 @@ https://docs.google.com/presentation/d/1k-qd5-b8fGCwTshu5EL-cbDSG32FeWKzWLd28NIv
 
 Tutorial 16: Bentham vs Kant
 https://docs.google.com/presentation/d/1M10CihiT9WCTKhbmZcVvUDult-arL8JvcVg9mdNOsx0/edit?usp=sharing
+
+Tutorial 17: Ross and Prima Facie Duties
+https://docs.google.com/presentation/d/1B9zVmUlqNt7-7myA0rYedTvxv_f32HXTLj90CdcJXN0/edit?usp=sharing
