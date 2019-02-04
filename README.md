@@ -54,3 +54,6 @@ https://docs.google.com/presentation/d/1M10CihiT9WCTKhbmZcVvUDult-arL8JvcVg9mdNO
 
 Tutorial 17: Ross and Prima Facie Duties
 https://docs.google.com/presentation/d/1B9zVmUlqNt7-7myA0rYedTvxv_f32HXTLj90CdcJXN0/edit?usp=sharing
+
+Tutorial 18: Thomson and the Trolley Problem
+https://docs.google.com/presentation/d/1oGKmexTuIQ5rfTqXlQLj9sQYaKCHNem8YuedLqwGhrk/edit?usp=sharing
