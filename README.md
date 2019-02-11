@@ -57,3 +57,6 @@ https://docs.google.com/presentation/d/1B9zVmUlqNt7-7myA0rYedTvxv_f32HXTLj90CdcJ
 
 Tutorial 18: Thomson and the Trolley Problem
 https://docs.google.com/presentation/d/1oGKmexTuIQ5rfTqXlQLj9sQYaKCHNem8YuedLqwGhrk/edit?usp=sharing
+
+Tutorial 19: Essay #3 Tips
+https://docs.google.com/presentation/d/1WhhAIykuPw35cEfc3SINqRBeTcl4_-3sKxLhq5VRtJU/edit?usp=sharing
