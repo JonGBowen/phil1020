@@ -60,3 +60,6 @@ https://docs.google.com/presentation/d/1oGKmexTuIQ5rfTqXlQLj9sQYaKCHNem8YuedLqwG
 
 Tutorial 19: Essay #3 Tips
 https://docs.google.com/presentation/d/1WhhAIykuPw35cEfc3SINqRBeTcl4_-3sKxLhq5VRtJU/edit?usp=sharing
+
+Tutorial 20: Taurek: Should the Numbers Count?
+https://docs.google.com/presentation/d/1rxU_7DNSlMC17lExJJerLwa2GYCRIsjzB0sq3PLVrwk/edit?usp=sharing
