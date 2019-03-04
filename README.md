@@ -63,3 +63,6 @@ https://docs.google.com/presentation/d/1WhhAIykuPw35cEfc3SINqRBeTcl4_-3sKxLhq5VR
 
 Tutorial 20: Taurek: Should the Numbers Count?
 https://docs.google.com/presentation/d/1rxU_7DNSlMC17lExJJerLwa2GYCRIsjzB0sq3PLVrwk/edit?usp=sharing
+
+Tutorial 21: Benatar's Antinatalism
+https://docs.google.com/presentation/d/1ysWuBHSXWQKWXiBM7T46AeZTMdfIDEHP0m6utnjwz7Q/edit?usp=sharing
