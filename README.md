@@ -66,3 +66,6 @@ https://docs.google.com/presentation/d/1rxU_7DNSlMC17lExJJerLwa2GYCRIsjzB0sq3PLV
 
 Tutorial 21: Benatar's Antinatalism
 https://docs.google.com/presentation/d/1ysWuBHSXWQKWXiBM7T46AeZTMdfIDEHP0m6utnjwz7Q/edit?usp=sharing
+
+Tutorial 22: Abortion Ethics
+https://docs.google.com/presentation/d/1TRt7M5N9jmpcfmMjy9T7OtwsGDrE1LQuYa249bQANGY/edit?usp=sharing
