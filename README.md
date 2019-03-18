@@ -69,3 +69,6 @@ https://docs.google.com/presentation/d/1ysWuBHSXWQKWXiBM7T46AeZTMdfIDEHP0m6utnjw
 
 Tutorial 22: Abortion Ethics
 https://docs.google.com/presentation/d/1TRt7M5N9jmpcfmMjy9T7OtwsGDrE1LQuYa249bQANGY/edit?usp=sharing
+
+Tutorial 23: Famine, Affluence, Duty
+https://docs.google.com/presentation/d/1mGhu92dFUjpdLOuRrtt1pUlfLngQNRPF51vrr99nfCk/edit?usp=sharing
