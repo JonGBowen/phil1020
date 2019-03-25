@@ -72,3 +72,6 @@ https://docs.google.com/presentation/d/1TRt7M5N9jmpcfmMjy9T7OtwsGDrE1LQuYa249bQA
 
 Tutorial 23: Famine, Affluence, Duty
 https://docs.google.com/presentation/d/1mGhu92dFUjpdLOuRrtt1pUlfLngQNRPF51vrr99nfCk/edit?usp=sharing
+
+Tutorial 24: Animal rights
+https://docs.google.com/presentation/d/1zf3vNdjjExyc6fc96s3GAygpFbrmYqV89ilQYz2FQAE/edit?usp=sharing
