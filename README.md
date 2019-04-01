@@ -75,3 +75,6 @@ https://docs.google.com/presentation/d/1mGhu92dFUjpdLOuRrtt1pUlfLngQNRPF51vrr99n
 
 Tutorial 24: Animal rights
 https://docs.google.com/presentation/d/1zf3vNdjjExyc6fc96s3GAygpFbrmYqV89ilQYz2FQAE/edit?usp=sharing
+
+Tutorial 25: Meaning in Life
+https://docs.google.com/presentation/d/1x5Z_NAeeOPQaHJVGh4VBQw4EHTtTRqpEo8_c8BLtZ8c/edit?usp=sharing
