@@ -78,3 +78,6 @@ https://docs.google.com/presentation/d/1zf3vNdjjExyc6fc96s3GAygpFbrmYqV89ilQYz2F
 
 Tutorial 25: Meaning in Life
 https://docs.google.com/presentation/d/1x5Z_NAeeOPQaHJVGh4VBQw4EHTtTRqpEo8_c8BLtZ8c/edit?usp=sharing
+
+Tutorial 26: The Myth of Sisyphus
+https://docs.google.com/presentation/d/1UZVam1JC_u5Yb9MKYS4TFk35t356BNu9XlytzKx16ec/edit?usp=sharing
